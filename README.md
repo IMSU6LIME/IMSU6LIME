@@ -5,4 +5,4 @@
 
   - 📫 How to reach me ... <a href="https://www.linkedin.com/in/andy-clunie">LinkedIn</a>
 
-
+Still a noobasaurus rex... grateful for any notes you may have on my work! 
